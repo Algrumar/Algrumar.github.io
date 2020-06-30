@@ -7,3 +7,6 @@ Impossible to pin down, Dirk Bogarde played everything from dashing romantic lea
 * comically risqué
 * working class valet
 * conflicted barrister
+
+As Dirk Bogarde said:
+> So I'm in quite the wrong profession obviously.
