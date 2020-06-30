@@ -10,3 +10,5 @@ Impossible to pin down, Dirk Bogarde played everything from dashing romantic lea
 
 As Dirk Bogarde said:
 > So I'm in quite the wrong profession obviously.
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/e/e4/Dirk_Bogarde_Hallmark_Hall_of_Fame.JPG/220px-Dirk_Bogarde_Hallmark_Hall_of_Fame.JPG"/>
